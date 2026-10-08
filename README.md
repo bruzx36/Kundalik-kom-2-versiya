@@ -1,0 +1,1 @@
+# Kundalik-kom-2-versiya
